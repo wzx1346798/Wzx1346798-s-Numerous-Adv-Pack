@@ -1,6 +1,6 @@
 Thanks for downloading this data pack!
 
-Wzx1346798's Numerous Adv Pack 2.1.4.2 [27.6.0]
+Wzx1346798's Numerous Adv Pack 3.8.1 [27.6.0]
 Author: wzx1346798
 
 1. Installation
